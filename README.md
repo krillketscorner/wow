@@ -1,2 +1,1 @@
-<div align='center'><p><img src='https://i.imgur.com/lRgdFCY.gif'
-
+click on the two clicks for more info.
