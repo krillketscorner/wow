@@ -1,2 +1,1 @@
-<p align="center">
-![krillketscorner](https://komarev.com/ghpvc/?username=your-github-username&color=grey)
+<p align="center"> ![krillketscorner](https://komarev.com/ghpvc/?username=your-github-username&color=grey)
