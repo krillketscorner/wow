@@ -7,7 +7,7 @@
 
 krillket 𓉸 any prns ⋆
 
-16+ to add
+16+ to add ᯓ★
 
 hate me 'cause I'm beautiful?
 bitch, i don't like you either!
