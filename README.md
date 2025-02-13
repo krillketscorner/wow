@@ -3,7 +3,7 @@
 <h1 align="center">
   <img width="900" src="https://i.pinimg.com/736x/ee/2d/07/ee2d0722b3343516fc20e31bf5dca6d9.jpg">
   
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 krillket 𓉸 any prns ⋆
 
@@ -13,7 +13,7 @@ bitch, i don't like you either!
 ![krillketscorner](https://komarev.com/ghpvc/?username=your-github-username&color=grey&style=plastic)
 
 
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 </h1>
 
 <h1 align="center">
