@@ -10,7 +10,7 @@ krillket 𓉸 any prns ⋆
 hate me 'cause I'm beautiful?
 bitch, i don't like you either!
 
-![krillketscorner](https://komarev.com/ghpvc/?username=your-github-username&color=grey&style=plastic)
+![krillketscorner](https://komarev.com/ghpvc/?username=krillketscorner&color=grey&style=plastic)
 
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
